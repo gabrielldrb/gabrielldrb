@@ -1,8 +1,9 @@
 ## oi 👋
 
-coisas que gosto de fazer :trollface:
+~Coisas que gosto de fazer :trollface:~
 
  - 🎮Jogar jogos.
 - 🎥Ver filmes.
--🎱Jogar sinuca
--🏎️Ver formula 1
+- 🎱Jogar sinuca
+- 🏎️Ver formula 1
+- 
