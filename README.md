@@ -1,6 +1,6 @@
 ## oi 👋
 
-~Coisas que gosto de fazer :trollface:~
+Coisas que gosto de fazer :trollface:
 
  - 🎮Jogar jogos.
 - 🎥Ver filmes.
